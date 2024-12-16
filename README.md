@@ -1,3 +1,3 @@
-## apredendo a programar ☑️
+## aprendendo a programar ☑️
 <!--
 -->
